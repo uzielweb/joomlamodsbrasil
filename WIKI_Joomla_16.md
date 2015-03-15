@@ -1,0 +1,1 @@
+A todos que quiserem contribuir com o projeto extra de tradução do Joomla 1.6, Entre aqui e contribua.
